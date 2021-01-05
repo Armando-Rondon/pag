@@ -6,5 +6,4 @@ Me he graduado en la ESO, tengo el Bachillerato de Ciencias Sociales y una Forma
 
 
 
-Aunque vivo en España mi familia es latina, mas concretamente de Venezuela
 ![ITC VENEZUELA](https://miro.medium.com/max/2504/1*mUA0mDRt_rc0XTgIltGf4w.jpeg)
