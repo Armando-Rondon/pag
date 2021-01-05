@@ -1,6 +1,6 @@
 # pag
 Me llamo Armando Rondón Hernández y tengo 18 años 
-Vivo en Mendillorri, donde me gradue de la ESO y de Bachillerato de Ciencias Sociales y estudio 1ºDAM en Cuatrovientos.
+Vivo en Mendillorri, donde me gradue de la ESO y de Bachillerato de Ciencias Sociales y estudio 1º de Desarrollo de Aplicaciones en Multiplataforma en Cuatrovientos.
 ![ITC Mendillorri](https://fotos02.noticiasdenavarra.com/2020/07/22/690x278/mendillorri-1.jpg)
 
 
